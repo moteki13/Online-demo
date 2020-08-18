@@ -4,6 +4,9 @@
 　- TopaTopa hazy Lazy   
 　- Fresh Haze IPA  
 　- Budweiser  
-
+  - スーパードライ  
+  - よなよなエール  
+  - インドの青鬼  
+ 
 
   
